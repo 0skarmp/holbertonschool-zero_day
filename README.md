@@ -1,1 +1,1 @@
-my first readme
+my first readme SQUIRTLE IS THE BEST POKEMON SINCE THE FIRST SEASON
